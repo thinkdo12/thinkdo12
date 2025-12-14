@@ -2,7 +2,7 @@
 - 👀 I’m interested in web, mobile app development , network configuration .
 - 🌱 I’m currently building mobile app focusing on warehouse.
 - 💞️ I’m looking to collaborate on building products
-- 📫 to reach me email: thinkdoanddo@gmail.com 
+- 📫 to reach me email: kirubelkifetew1@gmail.com 
 - 😄 Pronouns: 
 - ⚡ Fun fact: 
 
